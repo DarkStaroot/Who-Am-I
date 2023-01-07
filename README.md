@@ -1,2 +1,1 @@
-# Who-Am-I
-Who is Gulamzade Hasan ?
+#Sual vermədən Buranı Oxuyun.
